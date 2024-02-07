@@ -1,0 +1,1 @@
+## NEWTEXT for sample
